@@ -1,3 +1,6 @@
+##### Module 2: Prompts for Creative Thinking
+
+
 ### 1. How can unlocking creativity lead to breakthrough innovations?
 
 Unlocking creativity enables individuals to look at problems from new perspectives and develop unconventional solutions.
